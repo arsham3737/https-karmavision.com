@@ -1,1 +1,1 @@
-# https-karmavision.com
+# https Shop-karmavision.com
